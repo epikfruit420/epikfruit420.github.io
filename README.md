@@ -11,5 +11,6 @@ bitchass stupid fucking school blocked my fucking website before i could even ad
 
 if you are my school and see this, fuck you
 
+ok so hopefully i will make a new url and it will work otherwise idk how else i can make my own website during school time
 
 later gang
